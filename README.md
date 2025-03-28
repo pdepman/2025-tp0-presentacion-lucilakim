@@ -14,3 +14,4 @@ En la foto pareciera que juego bien al pool, PUES NO **soy MALISIMA**. Pero me l
 
 Me considero una persona sociable y divertida. Disfruto mucho conocer gente nueva y aprender. Por lo que espero que tengamos una gran cursada del 2025❕​
 
+Mi objetivo profesional es trabajar de forma remota para una empresa internacional, comenzando como desarrolladora y creciendo dentro de ella. A medida que adquiera más experiencia, aspiro a asumir roles de mayor responsabilidad, con la posibilidad de llegar a ser CEO. También tengo en mente la posibilidad de iniciar una startup junto a socios, donde pueda aplicar mis habilidades técnicas y de liderazgo. Creo firmemente que no hay límites en lo que puedo lograr, y mi ambición es continuar aprendiendo y evolucionando, siempre en busca de nuevos desafíos y oportunidades.
